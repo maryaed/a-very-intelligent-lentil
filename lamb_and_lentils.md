@@ -4,15 +4,15 @@ Rough peasant food that's low effort and delicious
 
 ## Ingredients
 
-*Two lamb shanks, or two lamb shoulder chops (cut up) or a pound of bone-in lamb shoulder
-*One large onion, diced
-*1/2 pound peeled, roughly chopped carrots
-*1 and 1/2 cups any kind of lentils
-*3 fat garlic cloves, smashed, peeled, and roughly chopped
-*3/4 tsp dried powdered rosemary, or a tablespoon of finely chopped fresh rosemary
-*olive oil
-*(optional) 1/2 cup red wine
-*(optional) 1 beef or lamb bouillon cube
+* Two lamb shanks, or two lamb shoulder chops (cut up) or a pound of bone-in lamb shoulder
+* One large onion, diced
+* 1/2 pound peeled, roughly chopped carrots
+* 1 and 1/2 cups any kind of lentils
+* 3 fat garlic cloves, smashed, peeled, and roughly chopped
+* 3/4 tsp dried powdered rosemary, or a tablespoon of finely chopped fresh rosemary
+* olive oil
+* (optional) 1/2 cup red wine
+* (optional) 1 beef or lamb bouillon cube
 
 ## Instructions
 
